@@ -1,3 +1,5 @@
+# Aspiring data analyst | Power BI | SQL | Data Storytelling | Open to New Opportunities
+
 ## About Me 👋
 
 ### Hi there 👋 I'm Alok Ingle  
