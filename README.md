@@ -1,4 +1,4 @@
-# Aspiring data analyst | Power BI | SQL | Data Storytelling | Open to New Opportunities
+# Aspiring Data Analyst | Power BI | SQL | Data Storytelling | Open to New Opportunities
 
 
 ## About Me 👋
